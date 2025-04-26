@@ -1,5 +1,6 @@
 # prada
-**pradagüncelgiriş**
+<img src="https://i.ibb.co/9HJw77PT/sosyal.png" alt="Prada Giriş Linki" style="max-width: 100%; border: 3px solid #ff5722; border-radius: 14px; box-shadow: 0px 0px 14px rgba(255, 87, 34, 0.7);">
+</a>
 <h1>💼 Prada – Güncel Erişimin Güvenilir Yolu! 🛡</h1>
 
 <a href="https://pradaff.xyz/links/?btag=2380251" title="Prada Güncel Giriş">
